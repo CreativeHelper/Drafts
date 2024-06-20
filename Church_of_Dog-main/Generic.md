@@ -1,0 +1,9 @@
+- Dogs are the best creation of [[Goodlihood]]
+- [[Good God]] made [[Humans]] to give [[Dogs]] someone to befriend.
+- Humanity loved dogs
+- Dogs hated the heat
+- Humanity made ice cream to cool dogs down
+- [[Goodlihood]] say "nu uh" and took the ice cream away
+- Dogs did not like this and went to war with God
+- [[Goodlihood]] being [[Goodlihood]], won, and banished the dogs to the [[Country of YES]]
+- See [[Church of Dog]]
