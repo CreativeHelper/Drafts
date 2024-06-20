@@ -1,0 +1,1 @@
+"Give gun have fun." Signed by all countries in 1 ACY.
